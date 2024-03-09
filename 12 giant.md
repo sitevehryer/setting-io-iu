@@ -1,0 +1,44 @@
+esp
+   blow 2io34ni o2p niopn i2n ipon ipon ipo2
+
+
+giant
+     form
+     c   cell o2i3  np2ion ip2n pion pi2on pi2n pio2n poin io2 noi2 noip2 noi noi2 
+     hte 
+     a
+
+     ae
+      aet 
+
+
+        at
+         e
+         t a
+          et
+           ae
+            t
+             et
+              aet
+               ae
+                t
+                a et
+                 io234nipo2n iop npio2n iopo n2ip noip2n iop npio2 nipo niop nio2 
+
+
+giant planet io23 noip2 ip3nnipo2 niop nop2in io2n io2 nion io2n io2n ion 2i2
+
+
+
+
+giant
+     cell 2344n po npio2n iop2np oin poi2np io2n poin poi2n pion 2pion ipo2 noi nio2n o n
+
+
+ giant fish io23n4 nipo23ip nopin 2npi o2np io2inop n ipo2n iop2n iop nipo2np io2 inpo nio2 
+![image](https://github.com/darkarmevan/evan-can/assets/157080147/d08131a5-ae10-4f44-a9c8-5ec2496cfc79)
+
+![image](https://github.com/darkarmevan/evan-can/assets/157080147/13c3ef9a-bcfc-4842-933e-622afa30812c)
+
+ip
+  company2o 3p n2 nip pni2np i2 npi npi2o npio2p nio2 npion pio2n pio2 npio npoi2 npio2 noi ![image](https://github.com/darkarmevan/evan-can/assets/157080147/90766f3e-a0ec-438b-acfe-0d344eab0da1)
