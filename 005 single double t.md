@@ -26,13 +26,11 @@ n i3
 
 er 
 
-er er 404 er signal ion2 npip ino2in o2pin ipn 2pin o2in in o2in oi on2o n n2
-![be5a418b07ace34444c33b7f9ba1693b-1](https://github.com/darkarmevan/setting-io-iu/assets/157080147/4d0a8b45-60a8-4c80-8b67-a7340c43f69b)
+er er 404 er signal ion2 npip ino2in o2pin ipn 2pin o2in in o2in oi on2o n n2 2op3 nio2 noi2 oin3 2389283 ino2i3 on nio23i on i234 
 
 single
-      text io2 inp ino2inp opin o2pin o
-![305685448-0ca51a8f-26fa-4d11-ad81-c9efe8e924bc](https://github.com/darkarmevan/setting-io-iu/assets/157080147/507acd2a-d5ba-4f48-b60b-7fda8d8d612e)
-![The_Universe_S6_3000x3000_NT-scaled](https://github.com/darkarmevan/setting-io-iu/assets/157080147/4d2ee428-a0d0-4709-b791-c546b0222d7f)
-![moana-maui-1](https://github.com/darkarmevan/setting-io-iu/assets/157080147/65373550-2047-4d31-b004-398e412b47d9)
-![The_Universe_S6_3000x3000_NT-scaled](https://github.com/darkarmevan/setting-io-iu/assets/157080147/2d024093-4564-4e0c-a5af-d6fa8855f0b8)
-![be5a418b07ace34444c33b7f9ba1693b-1](https://github.com/darkarmevan/setting-io-iu/assets/157080147/22671f1d-d9bd-4d01-8191-5ea6bebc396d)
+      text io2 inp ino2inp opin o2pin o oi2i on3 nio2 n3io ion23 io234 
+
+er 
+  ia d
+  ahc  oi23 noi2o2 oiion2 io 23io2 nio 23823 oi io23 4 
