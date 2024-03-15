@@ -1,4 +1,6 @@
-earth 
+pid 
+
+earth  er 
 
 oasis nio2ni ni 2n iop2opin inop 2ionp 2io np nopi2oip nino 2n oi noi2 no kk 
 
