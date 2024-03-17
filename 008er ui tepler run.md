@@ -1,3 +1,6 @@
+shotoi2 io ion2 nio2 nio2389 82oi 2ion noi23 nio nio23 nio ino23 4823 823oi ion23 489 23oo i2
+
+
 it*  2no nio 2noi oin2o ni2 ino oi23 p82 8 noi2noi2 nio3 noi nio2 nioo23
 
 shoot it* damn er io asd gnioasi o non i 3 n
