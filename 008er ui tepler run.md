@@ -1,4 +1,6 @@
-damn er io asd gnioasi o non i 3 n
+it*  2no nio 2noi oin2o ni2 ino oi23 p82 8 noi2noi2 nio3 noi nio2 nioo23
+
+shoot it* damn er io asd gnioasi o non i 3 n
 
 er bug 89239789780 27890237890890728970892 0 98023  ni23 ini no23498 2 3 23 ino ino23o in ino23 io4
 er
