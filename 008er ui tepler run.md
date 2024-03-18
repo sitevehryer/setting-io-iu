@@ -1,4 +1,14 @@
-shotoi2 io ion2 nio2 nio2389 82oi 2ion noi23 nio nio23 nio ino23 4823 823oi ion23 489 23oo i2
+rate oi2 ni2 nion o2inio 2ni o2ino 3i no2 829 828238 9 2i o3n 2o3i   2
+3
+n 23n n2 3n 
+i23n 
+
+n 2
+n 2
+n i3
+ ni234 8928 8978 9
+
+rate session ip* girl = shoot shotoi2 io ion2 nio2 nio2389 82oi 2ion noi23 nio nio23 nio ino23 4823 823oi ion23 489 23oo i2
 
 
 it*  2no nio 2noi oin2o ni2 ino oi23 p82 8 noi2noi2 nio3 noi nio2 nioo23
