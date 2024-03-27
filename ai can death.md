@@ -1,14 +1,18 @@
 
   
-  
+  ![Unknown-14](https://github.com/eduffield82/setting-io-iu/assets/160559076/c7c20e19-398d-4edd-b1a1-bde87514d9cd)
+
   of 
     ann o 234 ino2 inpop ino2no ip2 npio2 niop noip2 
-  
+  ![images-47](https://github.com/eduffield82/setting-io-iu/assets/160559076/6b421fc4-62dc-42bc-bddf-663770e25e29)
+
   
   chriwt io2ni o34 niop2 niponip o2nop i noip2no ipp2 
 23
-4
+4![images-17](https://github.com/eduffield82/setting-io-iu/assets/160559076/566a8011-6914-4835-85ed-3d4e33d2e3ec)
+
 234 pawssion 234ojn iio 23 ion ino2 inoi no2 edit
+![images-46](https://github.com/eduffield82/setting-io-iu/assets/160559076/5862a1b2-1626-483b-b75e-0296ffa5a195)
 
 34234423232342323
 424  nio23nio 4 ino23 ino nio2 nio nio23ni 
@@ -55,11 +59,13 @@
    4 23
    23234
    4 234
-    4 23
+    4 23![download-17](https://github.com/eduffield82/setting-io-iu/assets/160559076/49f37cd0-a6fc-4c1e-bf0b-3a905fa42177)
+
     23234
      424
      3 423
-     234 23
+     234 23![images-25](https://github.com/eduffield82/setting-io-iu/assets/160559076/f540036b-b6c3-43d5-8cfc-02ad2766103d)
+
     4   4
   23      234 
 34        23234 ino23 4n nip 23oin 4 noi ino nio23oi4  noi23o in4n o23 noi noi23n ion 232
@@ -83,9 +89,11 @@ ha
 ha 23
 ha   23 23 23
 ha oi        io  cat io234inn ipo2n iop2npio niop 2n iop2n opin opi2o nip
-  teen ion2n34 no niop2n iop2n pio np2io nipo2n ipo ni2po nio2  2 34 p2 n3i4poi2ii2 34
+  teen ion2n34 no niop2n iop2n pio np2io nipo2n ipo ni2po nio2  2 34 p2 n3i4poi2ii2 34![large-cat-breed-1553197454](https://github.com/eduffield82/setting-io-iu/assets/160559076/0d1f379a-2ffe-4956-b0a0-100b5f253019)
 
-th skill zeldaoi 23o np nopi23 inpo2n ipon opi2nop i2 nopi ni2op niop2 niop 2noip onip2o npi 2niop noip2 inop 2pin 2o2
+
+th skill zeldaoi 23o np nopi23 inpo2n ipon opi2nop i2 nopi ni2op niop2 niop 2noip onip2o npi 2niop![images-17](https://github.com/eduffield82/setting-io-iu/assets/160559076/d9d43b50-5b41-4cfd-bd28-ea8a377a760b)
+ noip2 inop 2pin 2o2
 
 
 ha
@@ -113,10 +121,12 @@ ha
 ha
 
 ha
-h oi2noni o2n iop2 noip n2oip niop2 nio
+h oi2noni o2n iop2 noip n2oip niop2 nio![e](https://github.com/eduffield82/setting-io-iu/assets/160559076/df1f0317-18d4-48db-a365-cae1e73bab5f)
+
 
 ze bit         of zelda io23in opn ipo2n pio2n ipon pio2n opi2no pin ipo2n iop2n iopn 2iop niop2 niop2 nio2
-          depth
+          depth![large-cat-breed-1553197454](https://github.com/eduffield82/setting-io-iu/assets/160559076/573d5ff8-eda4-4336-acf2-43f29617d8e1)
+
 
 
 0     can ai  2io34 niop2p noi npoi2 npio2n pio2 npoi onpi2 nopi2 nopi noip2 noip2oi n noi2 ni2
