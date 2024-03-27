@@ -1,3 +1,14 @@
+   er 
+   bear
+       oi234 niop npio2pno np o2pio in 23 p238948 928 9 923 ion4
+
+
+       beario 3n i4 ni niop3 ino34 83 9i in3oniop opi34n oi io345 
+
+       iu
+         bear 8387947893 78983in ipo3 pnio 3noip noi3o in nio34
+
+
 bear
     teeth io345 nip npio3 npoi on34 83 9 8938 n9089 n3 8 34
 n i3
