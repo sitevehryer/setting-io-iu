@@ -1,3 +1,5 @@
+exit 899843 5 899834 78900 7893809  83in  pin3 npio ino3 4
+
 eon n2inop i n23 892 89 9802in  ino23io nio
 
 ne 
