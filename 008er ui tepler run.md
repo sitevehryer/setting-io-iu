@@ -1,23 +1,29 @@
 oi pas inpd n pnoon23 8279  23 hipi23 ipooi23n io nio2 on34 4234
 
 hi
-  dog 2389 70923 in2p io inp2 pnio3i o23 n892 89nui23in ip2o3p 
+  dog 2389 70923 in2p io inp2 pn![Unknown-39](https://github.com/eduffield82/setting-io-iu/assets/160559076/a3788abd-3dda-488c-94f2-6775fda7c17f)
+io3i o23 n892 89nui23in ip2o3p 
 
   hi
     dog 892837 9 2893i n2p3ioiop n2 3iop inpo2 nip3oi np234 
 
     hji
-       tpower 283 72 89i2p3n pionp o2i 3nio 23 oi234ip op223489234
+       tpower 283 72 89i![iStock-1168285684](https://github.com/eduffield82/setting-io-iu/assets/160559076/31da6a67-dd1c-4884-bf7c-74c8d9cfe366)
+2p3n pionp o2i 3nio 23 oi234ip op223489234
 
 o ansop pao npnian ipnoo 
+![Unknown-1](https://github.com/eduffield82/setting-io-iu/assets/160559076/6ac5ec6d-b4a1-4b2f-8989-0c41a7a6cfa7)
 
-gen
+gen![resolve-lg](https://github.com/eduffield82/setting-io-iu/assets/160559076/57c534ba-5121-4fca-8284-0a57290e9429)
+
    ai 23498287870 92 09802 n3p2n pnp 23pi oi23 o 234 
 
    gen
       ai 9823487 99 82 un 2pnpio2 ni3i 23i  23 89278 n23n ip npi23 44 2344
+![307540174-319e2bc4-5646-447d-b868-ae42796d5b40](https://github.com/eduffield82/setting-io-iu/assets/160559076/b99c61c7-7d1b-4eae-8064-bd552c058dc8)
 
 gen ai ion 2i344 inop npi2389 2 2i o2ipno3 niop2poni3 niop23 498892 892ni o3 iop 2ipno34 
+![Unknown-48](https://github.com/eduffield82/setting-io-iu/assets/160559076/faeb37bf-0d5b-4da7-84ec-49e85580e071)
 
 gen
    ai 
@@ -33,9 +39,11 @@ en  gen ai io23in p npi np2io nopi23 niop inp23 pionio 23 489727 89 780923 89ni2
     ai 
       en
         gen 82 34 ipjoipoop in2i nop ino23iop 4pi n23489 2
+![307540190-1a80e7cc-e7e1-4fb7-9fee-29cb12407e1f](https://github.com/eduffield82/setting-io-iu/assets/160559076/bd7cc786-9178-4fc6-a7a2-14d70daf47f8)
 
 en
-en
+en![86f1d17fd2c08bfa9390061c126df235](https://github.com/eduffield82/setting-io-iu/assets/160559076/1d3b8a54-46cb-4792-9d6d-152fdd35f041)
+
   ai
     en 2i34 np npi2pin p2 nio3 nioinop2p iopio n2p3inonip o23oip 48 923 9823 ni234 
 
