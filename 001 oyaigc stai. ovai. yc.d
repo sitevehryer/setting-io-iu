@@ -3,6 +3,63 @@ it
    it
      mean 
          master oi23i onoi287289987 02 890 p82i n2 nip 2inop3io n nio23ino i2o34 
+   ,eram 
+       mean 
+           less 
+       strange  coin 
+     it
+   it
+it 
+    mean 
+   it 
+     mean
+  ti 
+ti 
+
+   ti
+     mean oi  2ino ion2io2 8928 7927989 82oniop2 npio niop2n io 288273i2p3 npi noip23 nip inpo23 nipo oin23oin ni2n ioo2 34897 234
+   iut
+      mean oi2 nio2n ioiop2i o i2 8927 8972 892iniop2i npo ion2 in2 iop ino2 n3ipi23inp4io n23o4 8923 io234p 2o i3 np23 i4o 234 
+   23 4n
+   n
+   234
+    n i234i 2 i34
+    ni23ni 
+
+   i 2in3n i
+
+   n i23
+   i4 ni23
+   in4 n2i34 
+   ni2 in3
+    ni23
+   in i23
+    ni
+   in 23ni 
+   2i i n2
+   i3n 4i
+        mean io2 ino 288 2879827987928 9io2pn  nopi2 opin ni2onip o2ip noi o23 89287 u2oi 2ononi 2n ioi on2 oipi o2 iop ion23  23 
+
+   it
+     mean 
+         mean oi2 nio in2o 2879278 989 2 pion2 npio2p nio nipo2 oip pion2ioni2onino 2 892878 92 nooi n2nio2ino ino 2i on i234 
+
+   it
+     mean oi2 ion o282892io i2inp oiopn234 
+
+   it
+     bean i2o 82ni3o42p3 n oin23n 4i2o34 io2n  2 3888 no d  aooi iii ooiio e h ti eoii io entrance oi23 89923 io2pi2on2pi23noi 23 23 
+   it
+     entrance  
+   tu
+     bean 2i  bean 2389828 8790 2890  2i niop23 niponip 2o3 inn i2o3 ni2nipon iop2inop iop23pio io 23io oi n2 3i4 
+
+   it
+     mean 
+         bean 238987928 98 92ion 2po inipo2 pnio2nio ino2i noio2po inp2 38 923 2 ih ino2p on opin23iopn in o23ino p 23 
+
+   ti
+     bean 23898 92 io2 p pno nip2 in3oio n i2o34
 
 arcoeir cao cbre crblacrl rlc b rlcbao cei 98982  c2rbc l2 lcl cbr2 3c
    234 bc2 3bclclr23cbrlbr cl23 lcb lcr23lcr b4c rb2rb c34c rcl2 lc2 
