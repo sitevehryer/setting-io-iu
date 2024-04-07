@@ -1,4 +1,4 @@
-branch
+cd branch
 
 utem oi a
    sda   ha 
