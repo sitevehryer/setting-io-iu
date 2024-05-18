@@ -8,7 +8,7 @@ se
               ha is net in i2in po2ni ponip 2on ipo2n i2n iopn i2 ni2n io2 nio 
                 assertoi2n3i4np i2np ipno i2inop npio2 pnio 2np iopn io2 nio2 n
                 ha  is net  oi2n3ni 2n ipon ipo2n iop2n ipo2n ipo ni2o nio2n oi2 no2
-                ![image](https://github.com/darkarmevan/evan-can-image-ai-central-city-above/assets/157080147/9c036743-244a-491f-b802-3c9f4be3d44f)
+                ![image](https://github.com/darkarmevan/setting-io-iu/assets/157080147/9c036743-244a-491f-b802-3c9f4be3d44f)
 hah relal2iiu 2 i ion2i n2 inpo npio2pino 2np io in2o nio2 n 
 
                 ha net i2 in3 nio2 inop niop2n iop2n io2n iop niop2 nopi2 noi2 
