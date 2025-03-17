@@ -1,3 +1,6 @@
+![John_Bauer_1915](https://github.com/user-attachments/assets/6cb062f7-6769-4fa5-8356-12270a2df9b8)
+
+
 photo 34895087  78903 89073 70890789 3 78983 9 pin3pin on oip3np io n3iop4 i4 n
 io3 i
 4n
